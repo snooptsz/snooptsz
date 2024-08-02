@@ -1,48 +1,29 @@
--
+👋👋👋 Hi, I’m @snooptsz 🔥🔥🔥
 
-## 👋👋👋 Hi, I’m @snooptsz 🔥🔥🔥
-
-
-
- # ❤️ 💗 💖 Love & Respect for all!!🫡 ✊ ❤️‍🔥
-
-
+❤️ 💗 💖 Love & Respect for all!!🫡 ✊ ❤️‍🔥
 
 - Cybersecurity Student, Privacy Consultant & Writer & Publication Manager in my free time
  about Technology & Cybersecurity. but not limited to....with a broad experience within the field but not 
 yet certified - Only practical experience - 🧧
 
-
-
-
-
 - 👀 I’m interested in Develop, Support & Contribute to build a better world
 anyway we can!
 
+Alone we just drops 💧 ...Together we can be an ocean! 🌊
 
-## Alone we just drops 💧 ...Together we can be an ocean! 🌊
-
-
-
-
-# - 🌱 I’m currently learning Programming ( Python ), Cloud ( AWS, Google & Microsoft ), OSINT,
+ - 🌱 I’m currently learning Programming ( Python ), Cloud ( AWS, Google & Microsoft ), OSINT,
 Cybersecurity & AI. 
 
-
-
-
-# - 💞️ I’m looking to collaborate on OSINT, Cybersecurity or linked! 😎
+- 💞️ I’m looking to collaborate on OSINT, Cybersecurity or linked! 😎
 
 ----------------------------------------------------------------------------------
 
-## 📫 How to reach me ...
+📫 How to reach me ...
 
 
   vitrine_radish_0k@icloud.com
 
-
-
-# For Writers 
+For Writers 
 
 osintteam.m.p@protonmail.com
 
