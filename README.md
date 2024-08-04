@@ -12,7 +12,5 @@ Cybersecurity & AI.
 ⚡ Fun fact: ... Love Martial Arts & Linked! Nosy about Integrated Medicine, Psycology & NeouroMarketing. 
 Got a Spot x a Voluntary Project in 2019, Thanks Energy Globe - > https://www.energyglobe.info/partner/friends-of-energy-globe
 I bark but no bite! < I still believe in ethical, honest & respectful business >
-----------------------------------------------------------------------------------
 🧨 Thanks & Have a great day ! 🌶️
-----------------------------------------------------------------------------------
 🔥🔥🔥🔥🔥🔥🔥🔥🔥🔥🔥🔥🔥🔥🔥🔥🔥🔥🔥🔥🔥🔥🔥🔥🔥🔥🔥🔥🔥🔥🔥🔥🔥🔥🔥🔥🔥🔥🔥🔥
