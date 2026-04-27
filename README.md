@@ -8,8 +8,7 @@ Focused on building, testing, and scaling systems that deliver practical value
 Developing and supporting projects that contribute to a more transparent, secure, and efficient digital ecosystem
 Alone we are limited. Together, execution scales.
 🤝 Collaboration & Contact
-General: vitrine_radish_0k@icloud.com
-Writers & collaborations: osintteam.m.p@protonmail.com
+General: snooptsz@pm.me
 ⚡ Background
 Recognised in 2019 through a voluntary initiative supported by Energy Globe
 (Details: https://www.energyglobe.info/partner/friends-of-energy-globe)
