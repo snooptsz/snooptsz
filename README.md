@@ -1,11 +1,18 @@
-👋 Hi, I’m @snooptsz 🔥
-💖 Love & Respect for u all!!🫡 ✊ ❤️‍🔥
-- Security Researcher & Student, whilts, Author & Editor for osintteam.blog & T3ch.---  but not limited to....
--  - Yet, over 15 years of practical experience, online & offline. Hardware & Software - 🧧
-- 👀 I’m interested in Develop, Support & Contribute to build a better world anyway we can!
-Alone we just drops 💧 ...Together we can be an ocean! 🌊  😎
-📫 How to reach ...  vitrine_radish_0k@icloud.com  OR 4 Writers & Collaborations >>> osintteam.m.p@protonmail.com 
-⚡ Fun fact: ... Got a Spot x a Voluntary Project in 2019, Thanks Energy Globe - > https://www.energyglobe.info/partner/friends-of-energy-globe
-I bark but no bite! < I still believe in ethical, honest & respectful business >
-🧨 Thanks & Have a great day ! 🌶️
-🔥🔥🔥🔥🔥🔥🔥🔥🔥🔥🔥🔥🔥🔥🔥🔥🔥🔥
+👋 Hi, I’m @snooptsz
+Security Researcher | OSINT Specialist | Editor & Author
+I operate across cybersecurity, OSINT, and applied intelligence, combining hands-on technical work with editorial and research-driven projects.
+Editor & contributor at osintteam.blog and T3CH
+15+ years of practical experience across hardware, software, and real-world environments
+Focused on building, testing, and scaling systems that deliver practical value
+🔍 Interests
+Developing and supporting projects that contribute to a more transparent, secure, and efficient digital ecosystem
+Alone we are limited. Together, execution scales.
+🤝 Collaboration & Contact
+General: vitrine_radish_0k@icloud.com
+Writers & collaborations: osintteam.m.p@protonmail.com
+⚡ Background
+Recognised in 2019 through a voluntary initiative supported by Energy Globe
+(Details: https://www.energyglobe.info/partner/friends-of-energy-globe)
+⚖️ Approach
+Direct, ethical, and execution-focused.
+No unnecessary noise — just results.
